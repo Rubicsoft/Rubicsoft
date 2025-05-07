@@ -1,3 +1,5 @@
-# **I am a coder**
+# **I am a Coder** :)
 
-Game Developer
+Reymo Je
+
+Game Developer / 3D Artist / Anime Illustrator / Graphic Designer / Arduino / Photography
