@@ -1,7 +1,7 @@
-# **I am a Coder** :)
+# Wassup Homie, I'm Reymo Je
 
-Reymo Je
+Let's be FRIENDS :)
 
-Game Developer / 3D Artist / Anime Illustrator / Graphic Designer / Arduino / Photography
+Game Developer / Software Engineering / 3D Artist / Anime Illustrator / Graphic Designer / Arduino / Photography
 
-**Current project** : Codex - RUN game (Project Thinkbox)
+**Current project** : Codex - RUN game (Project Thinkbox) ( *DISCONTINUE* )
